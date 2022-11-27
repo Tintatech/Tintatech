@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Tintatech
+- 📫 How to reach me https://www.tintasoft.com
